@@ -2,7 +2,7 @@
 - 👀 I’m interested in coding and IT
 - 🌱 I’m currently learning Azure Fundamentals
 - 💞️ I’m looking to collaborate on anything i could possibly can...
-- 📫 How to reach me Ristoff27@gmail.com
+- 📫 How to reach me Ristoff2023@gmail.com
 - Oh I love to play chess...
 
 <!---
